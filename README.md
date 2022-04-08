@@ -1,1 +1,1 @@
-# 6701204067-Assessment1pwb
+Nama:Rosa Fuji Lubis NIM:6701204067
